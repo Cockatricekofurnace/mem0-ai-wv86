@@ -1,4 +1,4 @@
-# 
+# Mis à jour Crawl4AI plugins. Avec ingénierie de prompts et graphes de connaissances — optimisé pour des performances et une efficacité maximales.
 
 
 
